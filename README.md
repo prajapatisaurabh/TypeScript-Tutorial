@@ -23,5 +23,5 @@ I would like to express my heartfelt gratitude to Kavshik Kothagal for creating 
 
 Thank you, Kavshik Kothagal, for sharing your knowledge and expertise with the community!
 
-For more tutorials and educational content, be sure to check out [YouTube channel](https://youtu.be/XfEtSYujbpk).
+For more tutorials and educational content, be sure to check out [YouTube channel](https://youtube.com/playlist?list=PLqq-6Pq4lTTanfgsbnFzfWUhhAz3tIezU).
 
